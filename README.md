@@ -2,7 +2,7 @@
 
 ## 🔥 Cozy Fireplace 4K - Ambient Relaxation on YouTube
 
-I'm the creator of [**Cozy Fireplace 4K**](https://www.youtube.com/@Cozy_Fireplace4K/videos), a relaxing YouTube channel designed for stress relief, deep sleep, study focus, and peaceful moments.
+I'm the creator of [**Fireplace**](https://www.youtube.com/@Cozy_Fireplace4K/videos), a relaxing YouTube channel designed for stress relief, deep sleep, study focus, and peaceful moments.
 
 Enjoy our most popular ambient fireplace experiences:
 
